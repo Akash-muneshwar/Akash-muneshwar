@@ -11,8 +11,7 @@ I thrive in collaborative environments, working with visionary professionals to 
 I am always eager to connect with like-minded professionals and organizations. Let’s join forces to harness the transformative power of AI and push the limits of technological innovation. Together, we can shape the future and make a lasting impact in the world of technology.
 
 - LinkedIn: [Akash Muneshwar](https://www.linkedin.com/in/akash-muneshwar-2a42b2284/)
-- Email: [your-email@example.com](mailto:your-email@example.com) (replace with your email)
-
+- Email: [akashmunehswar49@gmail.com@example.com](mailto:akashmuneshwar49@gamil.com@example.com) 
 
 
 Feel free to explore my repositories and get in touch for collaboration!
